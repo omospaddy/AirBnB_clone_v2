@@ -1,1 +1,0 @@
-omospaddy read me file 
